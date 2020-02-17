@@ -8,7 +8,7 @@
  \___/___/\__\___/|_|  |_|\___|
                                
                                
-							   ```
+```
 
 »  Bun venit ! Aici poti sa gasesti lectiile de istorie predate la Liceul Teoretic "Ioan Petrus" Otopeni ! . Momentan puteti gasii lectiile predate in clasa a 10 a ! Follow us for more fresh HOT information UWU~
 
